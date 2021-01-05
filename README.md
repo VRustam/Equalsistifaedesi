@@ -1,0 +1,2 @@
+# Equalsistifaedesi
+Equalsistifaedesi
